@@ -15,4 +15,4 @@ Bitcoin makes money
  And predict the final result using bitcoin
  In this  above analysis we can predict the future of the high price  ranges between $28.44M  to $38.80M and the low price ranges between $27.15M to $40.46M for the year 2023 Bitcoin price will eventually rise as the macro environment stabilizes over the next couple of years
  And I predicted that the cost of the bitcoin gets slightly higher price than the past fews years and we can invest the money in bitcoin
- before your invest , you know the complete knowledge abd tactics of the bitcoin
+ before your invest , you know the complete knowledge and tactics of the bitcoin
